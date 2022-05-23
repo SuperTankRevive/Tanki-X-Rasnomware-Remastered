@@ -1,2 +1,2 @@
 # Tanki-X-Rasnomware-Remastered
-Very powerful ransomware by Super Tank
+This file is RANSOMWARE! Don't run it on your real PC. Use this for test / educational purposes only! Creators (I) won't be responsible for any damages.
